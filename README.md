@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @franko-dat-tanko
 - 👀 I’m interested in bass house, drum and bass, and trap. I'm also interested in technology and coding!
-- 🌱 I’m currently learning how to compose and produce a UKG track. I'm adding my own spin on it though. 
+- 🌱 I’m currently learning how to compose and produce a UKG track. I'm adding my own spin on it though. I'm also studying software engineering at DigitalCrafts. I'm so stoked!
 - 💞️ I’m looking to collaborate on music or websites. 
 - 📫 How to reach me: pending
 
